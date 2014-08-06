@@ -1,2 +1,2 @@
-emilyschuman
+Emily Schuman
 ============
